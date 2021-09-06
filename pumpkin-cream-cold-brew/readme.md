@@ -1,5 +1,7 @@
 # Pumpkin Cream Cold Brew
 
+![A glass of tasty pumpkin cream cold brew](./photo-01.jpeg)
+
 Are you a fall-o-holic like me? Do you mark your calendar each year for the arrival of Papa Starbuck's gloriuos pumpkin-pie-inspired beverages? Do you wish you could maybe not blow an entire month's salary on this indulgence? If so, you've come to the right place.
 
 Full disclosure, this is not a coffee recipe. I don't care how you make your cold brew, or if you use plain iced coffee, or if you buy it in a jug at the grocery store. You do you. This is how I make the creamy mixture that I add to my coffee that gets it where it needs to be.
