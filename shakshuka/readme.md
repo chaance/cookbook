@@ -19,7 +19,7 @@ I'm not from the mediterranean so don't yell at me if this isn't culturally accu
 - Feta for topping
 - Chopped parsley for topping
 - Olive oil for the pan
-- Optional: mediterranean meatballs
+- **Optional:** mediterranean meatballs
   - I'll add another recipe for this later, but generally it's beef or lamb with a bunch of spices and herbs
 
 ## Instructions
@@ -31,7 +31,7 @@ I'm not from the mediterranean so don't yell at me if this isn't culturally accu
 - While veggies are cooking, chop canned tomatoes into small pieces. Make sure to save the juice!
 - Add garlic and spice mixture, cook until fragrant
 - Add tomatoes and juice, simmer until thickened
-- Optional: add cooked meatballs
+- If included, add cooked meatballs
 - Crack eggs into the skillet, season with salt and pepper, and reduce heat to low simmer
 - Cover the pan and cook until the whites are cooked
 - Uncover, add feta and parsley, lightly stir and enjoy!
